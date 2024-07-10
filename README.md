@@ -18,4 +18,5 @@
 		           -idk more but am kinda sesnsetuve
 
 		               tahts all byebye😍😸
-![Uploading 70b5b4c9a4dc374fd5f17907056d4437.jpg…]()
+![image](https://github.com/coldpolars/coldpolars/assets/164488312/13eac1a6-6739-40e7-a004-f6b091085e53)
+
